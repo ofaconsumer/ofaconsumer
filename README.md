@@ -1,1 +1,1 @@
-Open aerospace projects for the average hobbyist.
+We make aerospace projects that anyone can build and use.
