@@ -1,1 +1,1 @@
-We make aerospace projects that anyone can build and use.
+I'm Red, and I make electronic projects that can be made at a cheap price.
